@@ -1,2 +1,2 @@
-# leonardodanielolguin.github.io
+# leonardodanielolguin
 proyecto-cv-Andrés-Sierra
